@@ -6,4 +6,3 @@ If you're looking for the latest release of our system, check [here!](https://gi
 
 Join the [Discord Server](https://discord.gg/q4ztHT3ZvH) to hang out with the community and find people wanting to play!
 
-
